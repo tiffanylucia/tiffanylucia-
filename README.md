@@ -1,1 +1,1 @@
-# tiffanylucia-
+# tiffanylucia- Hi, I'm Tiffany Lucia.I am currently doing a side hustle of selling tote bags.I have just recently finished high school in the year 2024 and got a B-. In my free time I enjoy watching movies, playing video games, reading novels and doing research on the emerging trends in technology which keeps me busy. i am looking forward to learning computer programming cause i have a passion for coding.You can reach me through my contact:0746065356 or my email: luciatiffany517@gmail.com. Thank you.
